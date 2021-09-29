@@ -1,0 +1,1 @@
+screenshots for forum app
